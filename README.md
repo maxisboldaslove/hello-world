@@ -1,2 +1,3 @@
 # hello-world
-...but-enough-about-me
+...but-enough-about-me...
+during my life from start to finish to start again, these thougts and the mind body and soul that they began invading never DID claim them as mine.  i saw myself as your host.  a good host.  you're ghost, here to serve you and maybe see the pattern one day.  surely by now you are real and i am the one you will never recognize in person.
